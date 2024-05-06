@@ -8,7 +8,6 @@
 
 - 🔭 currently: I'm an Interactive Multimedia and Design student, currently finishing my 3rd year
 - 🌱 my design portfolio: https://veronicayung0010.myportfolio.com/
-- 🤔 looking for: summer 2024 internship 
 - 📫 How to reach me: veronicayung@cmail.carleton.ca
 - ⚡ Fun fact: Howl's Moving Castle is my all-time favorite movie
 
